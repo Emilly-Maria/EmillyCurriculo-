@@ -8,7 +8,7 @@
 
 
 **Objetivo**  
-Busco uma oportunidade como Jovem Aprendiz para desenvolver minhas habilidades profissionais e contribuir com minha dedicação e entusiasmo para o crescimento da empresa.
+Busco uma oportunidade como Jovem Aprendiz para desenvolver minhas habilidades profissionais e contribuir com minha dedicação e entusiasmo para o crescimento da empresa. Me adapto em locais rápidos e trabalho em equipe muito bem. Não tenho preferência de trabalho e salário. 
 
 
 **Formação Acadêmica**  
@@ -25,10 +25,8 @@ Busco uma oportunidade como Jovem Aprendiz para desenvolver minhas habilidades p
 **[Pacote Office]**  
 [Senai]  
 [Data de Conclusão]
+Inglês *Wizard* (Ainda estou fazendo)
 
-* Inclua cursos relevantes, como cursos de informática, línguas estrangeiras, entre outros.
-
----
 
 **Habilidades**  
 - **Comunicação**: Boa capacidade de expressão verbal e escrita.
@@ -38,14 +36,5 @@ Busco uma oportunidade como Jovem Aprendiz para desenvolver minhas habilidades p
   
 
 **Informações Adicionais**  
-- Disponibilidade para trabalhar [dias e horários].
-- Interesse em áreas específicas relacionadas ao estágio, como [administrativo, financeiro, marketing, etc.].
-
----
-
-**Referências**  
-Disponíveis mediante solicitação.
-
----
-
-Lembre-se de personalizar o currículo com suas informações e adaptar conforme as exigências da vaga para a qual está se candidatando. Boa sorte na sua busca!
+- Disponibilidade para trabalhar [Segunda a Sabádo das 07h as 14h Sabádo disponibilidade o dia todo ].
+- Interesse em áreas específicas relacionadas ao estágio, como [administrativo, marketing, etc.]
